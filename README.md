@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SAKSHAMOP3000
-- 👀 I’m interested in 
+- 👀 I’m interested in computer science 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me @AAMTGTABJNSNJRKH on telegram
